@@ -1,0 +1,2 @@
+# tugasweek1
+untuktugas
